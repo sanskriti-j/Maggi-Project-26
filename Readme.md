@@ -1,0 +1,3 @@
+The MAGGI brand originated in Switzerland. It was founded in 1884, when Swiss entrepreneur Julius Maggi had a vision: to make good-tasting and nutritious food accessible to busy, working families. He invented a powdered pea and bean soup, to provide nutritious, easy to prepare food for busy women who worked in factories and didn't have time to prepare healthy meals.
+
+This first MAGGI product was followed two years later with the invention of ready-to-use soups and liquid seasoning.  Nestlé acquired the MAGGI brand in 1947 and today, more than 120 years later, we strive to build on Julius Maggi's ambition of making delicious, quality and nutritious food accessible to all.
